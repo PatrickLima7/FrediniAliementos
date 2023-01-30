@@ -1,4 +1,4 @@
-Fredini Alimentos projeto de E-Commerce na seguimento de Aliementos
+Fredini Alimentos projeto de E-Commerce na segmento de Aliementos
 
 link para o site: Fredini Alimentos "https://fredini.com.br/"
 Fredini Alimentos:
